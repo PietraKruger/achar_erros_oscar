@@ -1,0 +1,1 @@
+# achar_erros_oscar
